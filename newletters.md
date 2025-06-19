@@ -2,4 +2,3 @@
 ## Promotion Été 2024
 - Réduction : 30% (directive marketing)
 
-Emails soldes d'été 2023.
